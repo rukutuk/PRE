@@ -1,2 +1,2 @@
 isi nya apa gituh
-naon 4
+naon qw
