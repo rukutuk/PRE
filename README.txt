@@ -1,2 +1,2 @@
 isi nya apa gituh
-naon qwss sa
+naon qwss sa s
