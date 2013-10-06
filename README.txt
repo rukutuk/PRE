@@ -1,2 +1,1 @@
-isi nya apa gituh
-naon qwss sa s
+ini commit
