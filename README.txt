@@ -1,2 +1,2 @@
 isi nya apa gituh
-naon tata12
+naon qwss sa s
